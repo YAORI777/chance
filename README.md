@@ -11,5 +11,5 @@ if you came from/have seen my system's dni, disregard it with me. some of what i
 ◈ system skeptics & exclusionists  
 ◈ chance or itrapped yumeshippers  
 ◈ if you find 'dry texting' annoying (see first paragraph)  
-◈ anti-kin 
+◈ anti-kin  
 ◈ below 16 y/o bodily. i am 18
