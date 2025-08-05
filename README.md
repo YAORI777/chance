@@ -2,7 +2,7 @@
 i'll make this pretty later  
 first of all. i am a chance fictive. if you have a problem with systems of any kind/view introjects as 'roleplayers', don't interact. i use he/they unless otherwise specified. i'd prefer you to whisper me if you want to interact because honestly i'm usually offtab, in vr, or just afk and will miss the message otherwise. also beware i'm sort of a quiet person and probably won't say much - my energy is *always* low  
   
-i don't mind ships interacting, but please don't come up to me and talk about past!ichance in detail, especially if i don't know you well. due to the circumstances of my (and my isaac's) canon, i find it weird. he was heavily influenced and, at one point, possessed by the darkheart. i'd prefer if mafioso cosplayers/roleplayers iwec. kin and introjects are fine. doubles & secondchance/toughluck please int
+i don't mind ships interacting, but please don't come up to me and talk about past!ichance in detail, especially if i don't know you well. due to the circumstances of my (and my isaac's) canon, i find it weird. he was heavily influenced and, at one point, possessed by the darkheart
 also just don't be weird about ichance in general please ty
 
 if you came from/have seen my system's dni, disregard it with me. some of what is listed there isn't applicable to me (e.g. 'itrapped ids')
@@ -15,3 +15,7 @@ if you came from/have seen my system's dni, disregard it with me. some of what i
 ◈ anti-kin  
 ◈ below 16 y/o bodily. i am 18
 ◈ if you're heavily against selfcest/mirror ships
+
+## iwc
+◈ doublefedora shippers
+◈ mafioso roleplayers/cosplayers (introjects/kin/c-links/etc are fine)
