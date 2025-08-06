@@ -7,8 +7,8 @@ i don't mind ships interacting, but please don't come up to me and talk about pa
 also just don't be weird about ichance in general please ty  
 i *do* like chickenroulette, toughluck, paycheck, and luckyhacker specifically as platonic pairings  
 
-if you came from/have seen my system's dni, disregard it with me. some of what is listed there isn't applicable to me (e.g. 'itrapped ids')
-also i like doubles hi please int
+if you came from/have seen my system's dni, disregard it with me. even though i'm the host,, some of what is listed there isn't applicable to me (e.g. 'itrapped ids')
+also i like doubles hi please int  
 
 ## dni
 ◈ basic dni criteria (includes pro/dark-shippers)  
