@@ -14,7 +14,7 @@ also i like doubles hi please int
 ◈ chance or itrapped yumeshippers  
 ◈ if you find 'dry texting' annoying (see first paragraph)  
 ◈ anti-kin  
-◈ below 16 y/o bodily. i am 18
+◈ below 16 y/o bodily. i am 18  
 ◈ if you're heavily against selfcest/mirror ships  
 
 ## iwc
