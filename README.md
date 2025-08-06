@@ -6,16 +6,18 @@ i don't mind ships interacting, but please don't come up to me and talk about pa
 also just don't be weird about ichance in general please ty
 
 if you came from/have seen my system's dni, disregard it with me. some of what is listed there isn't applicable to me (e.g. 'itrapped ids')
+also i like doubles hi please int
 
 ## dni
-◈ basic dni criteria  
+◈ basic dni criteria (includes pro/dark-shippers)  
 ◈ system skeptics & exclusionists  
 ◈ chance or itrapped yumeshippers  
 ◈ if you find 'dry texting' annoying (see first paragraph)  
 ◈ anti-kin  
 ◈ below 16 y/o bodily. i am 18
-◈ if you're heavily against selfcest/mirror ships
+◈ if you're heavily against selfcest/mirror ships  
 
 ## iwc
-◈ doublefedora shippers
-◈ mafioso roleplayers/cosplayers (introjects/kin/c-links/etc are fine)
+◈ doublefedora shippers  
+◈ mafioso ids (non-ids, aka cosplayers/roleplayers int with EXTREME caution. had some bad experiences with roleplayers being rlly inconsiderate)  
+◈ v canon-compliant itrapped ids  
