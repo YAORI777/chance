@@ -19,5 +19,5 @@ also i like doubles hi please int
 
 ## iwc
 ◈ doublefedora shippers  
-◈ mafioso ids (non-ids, aka cosplayers/roleplayers int with EXTREME caution. had some bad experiences with roleplayers being rlly inconsiderate)  
+◈ mafioso ids (non-ids, aka cosplayers/roleplayers int with EXTREME caution. had some bad experiences with rpers being rlly inconsiderate)  
 ◈ v canon-compliant itrapped ids  
